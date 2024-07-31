@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/ekinalaydin6120/**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1uF3fCZvNOorjj8_mmF8wp_fjaZIXLNvZ/view?usp=drive_link]([https://drive.google.com/file/d/1UGh-5l8zH6acreXfacJqYGUJoGr1CB7X/view?usp=drive_link](https://drive.google.com/file/d/1uF3fCZvNOorjj8_mmF8wp_fjaZIXLNvZ/view?usp=drive_link))
+- 📄 Know about my experiences ([https://drive.google.com/file/d/1UGh-5l8zH6acreXfacJqYGUJoGr1CB7X/view?usp=drive_link](https://drive.google.com/file/d/1uF3fCZvNOorjj8_mmF8wp_fjaZIXLNvZ/view?usp=drive_link))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
