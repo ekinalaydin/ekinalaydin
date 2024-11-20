@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Flutter, Software Testing, Tensorflow, HTML, CSS, Software Documentation, Deep learning etc.**
 
-- 📫 How to reach me **https://www.linkedin.com/in/ekinalaydin//**
+- 📫 How to reach me **https://www.linkedin.com/in/ekinalaydin/**
 
 
 <h3 align="left">Connect with me:</h3>
